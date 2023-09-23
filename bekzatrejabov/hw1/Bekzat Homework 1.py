@@ -1,0 +1,1 @@
+Kelesy sabaq oryndap kelemyn
